@@ -1,4 +1,4 @@
-
+shrink for brainrots ultimate Scripts offers the most advanced shrink for brainrots Script, with auto-heal and aimbot. Perfect for dominating any
 
 
 
